@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @julials2
 - 👀 I’m interested in statistics
-- 📫 How to reach me: julials2@byu.edu
+- 📫 How to reach me: julialiminsiebert@gmail.com
 - 😄 Pronouns: she/her
 
 <!---
